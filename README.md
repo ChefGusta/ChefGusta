@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ChefGusta
-- 👀 I’m interested in environmental sciences
+- 👀 I’m interested in bioaccoustics 
 - 🌱 I’m currently learning melodic cells
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on "Secret of the Forest"
 - 📫 How to reach me: move your hand 
 - 😄 Pronouns: It/When
 - ⚡ Fun fact: ...
